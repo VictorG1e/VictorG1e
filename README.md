@@ -10,6 +10,5 @@ Meu nome é Victor Gabriel
 
 00001113430539sp@al.educacao.sp.gov.br
 
-00001113769002sp@al.educacao.sp.gov.br
 
 ![](https://media1.tenor.com/m/el-8kP9KwUAAAAAd/treatsbettr-fiel-torcida.gif)
