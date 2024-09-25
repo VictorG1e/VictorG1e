@@ -12,4 +12,4 @@ Meu nome é Victor Gabriel
 
 00001113769002sp@al.educacao.sp.gov.br
 
-![Treatsbettr Fiel Torcida GIF]([link GIF do Tenor](https://tenor.com/pt-BR/view/treatsbettr-fiel-torcida-fiel-timão-coringão-gif-8817973926359122240))
+![](https://media1.tenor.com/m/el-8kP9KwUAAAAAd/treatsbettr-fiel-torcida.gif)
